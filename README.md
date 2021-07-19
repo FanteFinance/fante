@@ -1,0 +1,2 @@
+# fante
+FANTE FINANCE is a top-notch DeFi payment gateway alternative that will not just provide convenience to the market but will also educate the people on financial literacy through its academy, improve access to housing ownership (for zero, low and middle-income earners), create more secured opportunities in the tourism and hospitality sector (while encouraging healthy competition), bridge the gap between the small scale farmers and their contemporaries in the Agric value chain  and satisfy entertainment needs while rewarding its users. 
